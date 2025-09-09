@@ -1,3 +1,3 @@
-     ![Alt text](https://cdn.discordapp.com/attachments/1343188719561343046/1414742265703694446/a5hxeq.gif?ex=68c0ace8&is=68bf5b68&hm=0309cb26e6eee6697a14bb3cf41d0e6ebe26b73ddd397ec751f976836bcfcc04&>) 
+ ![Alt text](https://cdn.discordapp.com/attachments/1343188719561343046/1414742265703694446/a5hxeq.gif?ex=68c0ace8&is=68bf5b68&hm=0309cb26e6eee6697a14bb3cf41d0e6ebe26b73ddd397ec751f976836bcfcc04&>) 
   
-![Alt text](https://cdn.discordapp.com/attachments/1343188719561343046/1414829293560660149/Untitled739_20250908222605.png?ex=68c0fdf5&is=68bfac75&hm=fe0137e9c88c0f191e8fa52addc932f55b863a4e6e1ccaf8ed6a5d9161f84e45&)
+  ![Alt text](https://cdn.discordapp.com/attachments/1343188719561343046/1414829293560660149/Untitled739_20250908222605.png?ex=68c0fdf5&is=68bfac75&hm=fe0137e9c88c0f191e8fa52addc932f55b863a4e6e1ccaf8ed6a5d9161f84e45&)
